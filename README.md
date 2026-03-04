@@ -95,7 +95,7 @@ This system can be used by:
 
 ## 📬 Contact
 
-📧 Email: parashram@gmail.com  
+📧 Email: parash1310@gmail.com  
 
 ---
 
